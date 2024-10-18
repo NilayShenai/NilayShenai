@@ -3,9 +3,8 @@
 
 - I’m currently learning **Julia, Stats and Ruby**
 
-- How to reach me **nilayshenai@cock.li**
+- EMAIL: **nilayshenai@cock.li**
 
-- ⚡ Fun fact **BEES MAKE HONEY**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
